@@ -1,2 +1,3 @@
 # hello-world
-lozenge broth cob
+wimps sissies sweat and abomination.
+I'm an artist and itinerant theologian committed to tectonic shakes and shimmies.
